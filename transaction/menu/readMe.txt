@@ -1,0 +1,1 @@
+긁어온거임(github -> bdsx menu)
